@@ -1,0 +1,2 @@
+# dimension-consciente
+exploración cultural 
